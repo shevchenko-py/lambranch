@@ -128,3 +128,111 @@
 
 <a href="https://katfile.com/c9dydgokuv15/违童之愿：冷战时期美国儿童医学实验秘史_by_艾伦·M·霍恩布鲁姆,_朱迪斯·L·纽曼,_格雷戈里·J·多贝尔_.pdf.html" target=_blank>违童之愿：冷战时期美国儿童医学实验秘史 by 艾伦·M·霍恩布鲁姆, 朱迪斯·L·纽曼, 格雷戈里·J·多贝尔 .pdf - 98.6 MB</a>
 
+
+
+### 科普
+
+<a href="https://katfile.com/ewp0ebhilb5j/从一到无穷大_by_乔治·伽莫夫_.pdf.html" target=_blank>从一到无穷大 by 乔治·伽莫夫 .pdf - 9.0 MB</a>
+
+<a href="https://katfile.com/p7fg11hwv6cm/共病时代：动物疾病与人类健康的惊人联系_by_芭芭拉·纳特森-霍洛威,_凯瑟琳·鲍尔斯_.pdf.html" target=_blank>共病时代：动物疾病与人类健康的惊人联系 by 芭芭拉·纳特森-霍洛威, 凯瑟琳·鲍尔斯 .pdf - 59.1 MB</a>
+
+<a href="https://katfile.com/stxqqot09vv7/别客气，请随意使用科学_搞笑诺贝尔奖系列丛书2_by_(美)马克·亚伯拉罕斯_.pdf.html" target=_blank>别客气，请随意使用科学 搞笑诺贝尔奖系列丛书2 by (美)马克·亚伯拉罕斯 .pdf - 46.0 MB</a>
+
+<a href="https://katfile.com/6404eypx4x0x/南极洲：一片神秘的大陆_by_加布里埃尔·沃克_.pdf.html" target=_blank>南极洲：一片神秘的大陆 by 加布里埃尔·沃克 .pdf - 119.5 MB</a>
+
+<a href="https://katfile.com/ehenu8z2qtcf/多重宇宙：一个世界太少了？_by_托比阿斯·胡阿特,_马克斯·劳讷_.pdf.html" target=_blank>多重宇宙：一个世界太少了？ by 托比阿斯·胡阿特, 马克斯·劳讷 .pdf - 8.6 MB</a>
+
+<a href="https://katfile.com/pxha3j37y55o/大气物理学_by_盛裴轩_毛节泰_李建国_张霭琛_桑建国_潘乃先_.pdf.html" target=_blank>大气物理学 by 盛裴轩 毛节泰 李建国 张霭琛 桑建国 潘乃先 .pdf - 141.5 MB</a>
+
+<a href="https://katfile.com/vmm59jo5u6kv/大气：万物的起源_by_加布里埃尔·沃克_.pdf.html" target=_blank>大气：万物的起源 by 加布里埃尔·沃克 .pdf - 23.1 MB</a>
+
+<a href="https://katfile.com/tefb2y2d3vcz/大背叛：科学中的欺诈_by_霍勒斯·弗里兰·贾德森_.pdf.html" target=_blank>大背叛：科学中的欺诈 by 霍勒斯·弗里兰·贾德森 .pdf - 21.3 MB</a>
+
+<a href="https://katfile.com/o8fuys8x0b60/奇妙的尘埃_by_汉娜·霍姆斯_.pdf.html" target=_blank>奇妙的尘埃 by 汉娜·霍姆斯 .pdf - 84.2 MB</a>
+
+<a href="https://katfile.com/lpiw22fra1b4/无人读过的书：哥白尼《天体运行论》追寻记_by_欧文·金格里奇_.pdf.html" target=_blank>无人读过的书：哥白尼《天体运行论》追寻记 by 欧文·金格里奇 .pdf - 24.2 MB</a>
+
+<a href="https://katfile.com/lkc3sz5s8o14/来自中国的礼物：大熊猫与人类相遇的一百年_by_亨利·尼科尔斯_.pdf.html" target=_blank>来自中国的礼物：大熊猫与人类相遇的一百年 by 亨利·尼科尔斯 .pdf - 37.9 MB</a>
+
+<a href="https://katfile.com/tzg2nsi0wcwr/物种起源_by_[英]达尔文_.pdf.html" target=_blank>物种起源 by [英]达尔文 .pdf - 42.1 MB</a>
+
+<a href="https://katfile.com/wcmutfpuhfou/百变小红帽：一则童话三百年的演变_by_凯瑟琳·奥兰丝汀_.pdf.html" target=_blank>百变小红帽：一则童话三百年的演变 by 凯瑟琳·奥兰丝汀 .pdf - 20.2 MB</a>
+
+<a href="https://katfile.com/6ebpdx5cfpj6/系统之美.pdf.html" target=_blank>系统之美.pdf - 3.8 MB</a>
+
+<a href="https://katfile.com/4pxr329nlgrd/致命药瘾：让人沉迷的食品和药物_by_辛西娅·库恩_.pdf.html" target=_blank>致命药瘾：让人沉迷的食品和药物 by 辛西娅·库恩 .pdf - 36.6 MB</a>
+
+<a href="https://katfile.com/puoz13cj0o92/蒙娜丽莎传奇：新发现破解终极谜团_by_让-皮埃尔·伊斯鲍茨,_克里斯托弗·希斯·布朗_.pdf.html" target=_blank>蒙娜丽莎传奇：新发现破解终极谜团 by 让-皮埃尔·伊斯鲍茨, 克里斯托弗·希斯·布朗 .pdf - 14.5 MB</a>
+
+<a href="https://katfile.com/wterbi97ndrc/血液的故事_by_比尔·海斯_.pdf.html" target=_blank>血液的故事 by 比尔·海斯 .pdf - 27.2 MB</a>
+
+<a href="https://katfile.com/j0ed4yokwwtg/重返人类演化现场_by_奇普·沃尔特_.pdf.html" target=_blank>重返人类演化现场 by 奇普·沃尔特 .pdf - 14.6 MB</a>
+
+<a href="https://katfile.com/xmlsp1ioz303/阿司匹林传奇_by_迪尔米德·杰弗里斯_.pdf.html" target=_blank>阿司匹林传奇 by 迪尔米德·杰弗里斯 .pdf - 29.1 MB</a>
+
+<a href="https://katfile.com/qwp57s74dx6y/黑色盛宴：嗜血动物的奇异生活_by_比尔·舒特_.pdf.html" target=_blank>黑色盛宴：嗜血动物的奇异生活 by 比尔·舒特 .pdf - 16.2 MB</a>
+
+
+
+### 性学
+
+<a href="https://katfile.com/s7utm0w6ef1v/[回春健康指南].陈伟.扫描版[www.xzpc6.com].pdf.html" target=_blank>[回春健康指南].陈伟.扫描版.pdf - 4.5 MB</a>
+
+<a href="https://katfile.com/fi76z4dh0atp/中国古代房内考_中国古代的性与社会_Zhong_guo_gu_dai_fang_nei_kao_Zhong_guo_gu_dai_de_xing_yu_she_hui_by_Robert_Hans_van_Gulik（高罗佩）_李零,_郭晓惠_.pdf.html" target=_blank>中国古代房内考 中国古代的性与社会 Zhong guo gu dai fang nei kao Zhong guo gu dai de xing yu she hui by Robert Hans van Gulik（高罗佩） 李零, 郭晓惠 .pdf - 14.9 MB</a>
+
+<a href="https://katfile.com/ufjujzukj06c/性之变：21世纪中国人的性生活_by_潘绥铭，黄盈盈_.pdf.html" target=_blank>性之变：21世纪中国人的性生活 by 潘绥铭，黄盈盈 .pdf - 116.2 MB</a>
+
+<a href="https://katfile.com/de6a4z97oohp/性地图景_by_宁应斌_.pdf.html" target=_blank>性地图景 by 宁应斌 .pdf - 32.7 MB</a>
+
+<a href="https://katfile.com/rt3m8e4wwjt5/性学观止_by_贺兰特·凯查杜里安,_胡颖翀_.pdf.html" target=_blank>性学观止 by 贺兰特·凯查杜里安, 胡颖翀 .pdf - 44.3 MB</a>
+
+<a href="https://katfile.com/29r8lh7jbnih/性经验史(增订版)_by_[法]米歇尔·福柯_佘碧平(译)_.pdf.html" target=_blank>性经验史(增订版) by [法]米歇尔·福柯 佘碧平(译) .pdf - 22.5 MB</a>
+
+<a href="https://katfile.com/0wnlsnfkoqb0/性趣探秘——人类性的进化_by_Jared_Diamond_.pdf.html" target=_blank>性趣探秘——人类性的进化 by Jared Diamond .pdf - 2.9 MB</a>
+
+<a href="https://katfile.com/tg5f3ixipot2/海蒂性学报告：女人篇_by_雪儿·海蒂,_Shere_Hite_.pdf.html" target=_blank>海蒂性学报告：女人篇 by 雪儿·海蒂, Shere Hite .pdf - 40.7 MB</a>
+
+<a href="https://katfile.com/cvyid11kkk95/海蒂性学报告：男人篇_by_雪儿·海蒂,_Shere_Hite_.pdf.html" target=_blank>海蒂性学报告：男人篇 by 雪儿·海蒂, Shere Hite .pdf - 97.5 MB</a>
+
+<a href="https://katfile.com/w4wmbuqm069e/色情無價_by_甯應斌_何春蕤_.pdf.html" target=_blank>色情無價 by 甯應斌 何春蕤 .pdf - 9.7 MB</a>
+
+<a href="https://katfile.com/chdbcb8jk2bs/言不褻不笑_近代中國男性世界中的諧謔、情慾與身體-黃克武__聯經2016Yan_bu_xie_bu_xiao_jin_dai_zhong_guo_nan_xing_shi_jie_zhong_de_xie_xue_qing_yun_yu_shen_ti._by_黃克武_Huang,_Kewu（黄克武）_.pdf.html" target=_blank>言不褻不笑 近代中國男性世界中的諧謔、情慾與身體-黃克武 _聯經2016Yan bu xie bu xiao jin dai zhong guo nan xing shi jie zhong de xie xue qing yun yu shen ti. by 黃克武 Huang, Kewu（黄克武） .pdf - 130.3 MB</a>
+
+<a href="https://katfile.com/2rs94nztfosp/麻美姐姐教你：手放這裡女人會很想要_by_麻美由真_.pdf.html" target=_blank>麻美姐姐教你：手放這裡女人會很想要 by 麻美由真 .pdf - 1.9 MB</a>
+
+
+
+### 历史
+
+<a href="https://katfile.com/90nx9pan25ty/AB团与富田事变始末_by_戴向青,_罗惠兰_.pdf.html" target=_blank>AB团与富田事变始末 by 戴向青, 罗惠兰 .pdf - 7.3 MB</a>
+
+<a href="https://katfile.com/0zu89rqdwa1u/中古中国与外来文明_by_荣新江_.pdf.html" target=_blank>中古中国与外来文明 by 荣新江 .pdf - 9.8 MB</a>
+
+<a href="https://katfile.com/mv5u63m4ee3v/二十世紀中國的明史研究_by_徐泓_.pdf.html" target=_blank>二十世紀中國的明史研究 by 徐泓 .pdf - 119.0 MB</a>
+
+<a href="https://katfile.com/bxk4pjmxedwd/俄罗斯解密档案选编第一卷1945.1-1949.2_by_沈志华_.pdf.html" target=_blank>俄罗斯解密档案选编第一卷1945.1-1949.2 by 沈志华 .pdf - 115.5 MB</a>
+
+<a href="https://katfile.com/nl1b15tosf3d/历史笔记_2_by_高华_.pdf.html" target=_blank>历史笔记 2 by 高华 .pdf - 200.0 MB</a>
+
+<a href="https://katfile.com/u1m0uud0ytz7/域外文献里的中国_by_復旦大学古籍整理研究所；章培恒先生学术基金_.pdf.html" target=_blank>域外文献里的中国 by 復旦大学古籍整理研究所；章培恒先生学术基金 .pdf - 22.9 MB</a>
+
+<a href="https://katfile.com/s3u8dh119kvz/山海经的文化寻踪_想象地理学”与东西文化碰触（上）_by_叶舒宪_萧兵_.pdf.html" target=_blank>山海经的文化寻踪 想象地理学”与东西文化碰触（上） by 叶舒宪 萧兵 .pdf - 53.7 MB</a>
+
+<a href="https://katfile.com/xk4gf5eqfuz1/山海经的文化寻踪_想象地理学”与东西文化碰触（下）_by_叶舒宪_萧兵_.pdf.html" target=_blank>山海经的文化寻踪 想象地理学”与东西文化碰触（下） by 叶舒宪 萧兵 .pdf - 59.5 MB</a>
+
+<a href="https://katfile.com/3hxjzwczfj0s/明代的蘇州藏書_by_陳冠至_.pdf.html" target=_blank>明代的蘇州藏書 by 陳冠至 .pdf - 46.8 MB</a>
+
+<a href="https://katfile.com/flvvtms5yu5j/明清财经史新探_by_李三谋_.pdf.html" target=_blank>明清财经史新探 by 李三谋 .pdf - 8.7 MB</a>
+
+<a href="https://katfile.com/pxr435e68082/疯狂实验史_by_雷托·U·施奈德_.pdf.html" target=_blank>疯狂实验史 by 雷托·U·施奈德 .pdf - 37.7 MB</a>
+
+<a href="https://katfile.com/wo8m5wd4ny0t/疯狂实验史Ⅱ_by_施耐德_.pdf.html" target=_blank>疯狂实验史Ⅱ by 施耐德 .pdf - 53.2 MB</a>
+
+<a href="https://katfile.com/kudiodyca76b/纸影寻踪：旷世发明的传奇之旅_by_亚历山大·门罗_.pdf.html" target=_blank>纸影寻踪：旷世发明的传奇之旅 by 亚历山大·门罗 .pdf - 58.7 MB</a>
+
+<a href="https://katfile.com/d4c0dl10vlss/耶路撒冷三千年_.pdf.html" target=_blank>耶路撒冷三千年 .pdf - 9.5 MB</a>
+
+<a href="https://katfile.com/qkrsczj9rlk9/臣纲清代文官的游戏规则_by_艾永明_，李晟_.pdf.html" target=_blank>臣纲清代文官的游戏规则 by 艾永明 ，李晟 .pdf - 9.9 MB</a>
+
+<a href="https://katfile.com/75wz3mgk8cpu/错引耶稣：《圣经》传抄、更改的内幕_by_巴特·埃尔曼_.pdf.html" target=_blank>错引耶稣：《圣经》传抄、更改的内幕 by 巴特·埃尔曼 .pdf - 38.0 MB</a>
+
