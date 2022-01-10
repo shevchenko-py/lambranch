@@ -76,3 +76,55 @@
 
 <a href="https://katfile.com/fgfea9f2xq04/逻辑学导论_by_柯匹,_科恩_.pdf.html" target=_blank>逻辑学导论 by 柯匹, 科恩 .pdf - 45.4 MB</a>
 
+
+
+### 数学
+
+<a href="https://katfile.com/0z5lro10j4c2/什么是数学：对思想和方法的基本研究_by_[美]R‧柯朗_H‧罗宾_I‧斯图尔特(修订)_左平(译)_张饴慈(译)_.pdf.html" target=_blank>什么是数学：对思想和方法的基本研究 by [美]R‧柯朗 H‧罗宾 I‧斯图尔特(修订) 左平(译) 张饴慈(译) .pdf - 19.1 MB</a>
+
+<a href="https://katfile.com/jm32i5rpo52d/哈密尔顿系统的辛几何算法_精装_by_冯康_(作者)_.pdf.html" target=_blank>哈密尔顿系统的辛几何算法 精装 by 冯康 (作者) .pdf - 11.2 MB</a>
+
+<a href="https://katfile.com/rano3evreiom/数学之美_by_吴军_.pdf.html" target=_blank>数学之美 by 吴军 .pdf - 50.9 MB</a>
+
+<a href="https://katfile.com/jj4pz1qv4lok/数学哲学：对数学的思考_by_[美]斯图尔特‧夏皮罗_郝兆宽(译)_杨睿之(译)_.pdf.html" target=_blank>数学哲学：对数学的思考 by [美]斯图尔特‧夏皮罗 郝兆宽(译) 杨睿之(译) .pdf - 6.5 MB</a>
+
+<a href="https://katfile.com/frj505u30m2b/数理逻辑是什么_by_[英]_约翰·N．克罗斯利_.pdf.html" target=_blank>数理逻辑是什么 by [英] 约翰·N．克罗斯利 .pdf - 36.3 MB</a>
+
+<a href="https://katfile.com/q4r221ar4v0x/有限元分析的概念与应用-第四版_by_Robert_D._Cook,_David_S._Malkus,_Michael_E._Plesha,_Robert_J._Witt_.pdf.html" target=_blank>有限元分析的概念与应用-第四版 by Robert D. Cook, David S. Malkus, Michael E. Plesha, Robert J. Witt .pdf - 62.9 MB</a>
+
+<a href="https://katfile.com/kg1597t0p1nu/离散数学及其应用（原书第5版）_平装_by_Kenneth_H.Rosen_(作者),_袁崇义_(译者),_等_(译者)_.pdf.html" target=_blank>离散数学及其应用（原书第5版） 平装 by Kenneth H.Rosen (作者), 袁崇义 (译者), 等 (译者) .pdf - 24.8 MB</a>
+
+<a href="https://katfile.com/rpii6d7lvyyu/线性代数应该这样学Liner_Algebra_Done_Right(中文).pdf.html" target=_blank>线性代数应该这样学Liner Algebra Done Right(中文).pdf - 14.1 MB</a>
+
+<a href="https://katfile.com/dsuwz2our34m/统计学关我什么事_.pdf.html" target=_blank>统计学关我什么事 .pdf - 23.8 MB</a>
+
+<a href="https://katfile.com/8jrn93es6dpt/自然哲学之数学原理_by_[英]牛顿_.pdf.html" target=_blank>自然哲学之数学原理 by [英]牛顿 .pdf - 25.0 MB</a>
+
+<a href="https://katfile.com/sob739vk3lhj/陶哲轩实分析.pdf.html" target=_blank>陶哲轩实分析.pdf - 44.6 MB</a>
+
+
+
+### 社会学
+
+<a href="https://katfile.com/4we81ejxaw10/[煤老板自述三十年].老五.劲飞.著.扫描版[小电驴www.XiaoDianLv.com].pdf.html" target=_blank>[煤老板自述三十年].老五.劲飞.著.扫描版.pdf - 23.3 MB</a>
+
+<a href="https://katfile.com/whtdq9tkommw/人人都在说谎赤裸裸的数据真相_by_赛思•斯蒂芬斯-达维多维茨.pdf.html" target=_blank>人人都在说谎赤裸裸的数据真相 by 赛思•斯蒂芬斯-达维多维茨.pdf - 5.2 MB</a>
+
+<a href="https://katfile.com/gedk72qx9mna/吃的大冒险：烹饪猎人笔记_by_罗布·沃尔什_.pdf.html" target=_blank>吃的大冒险：烹饪猎人笔记 by 罗布·沃尔什 .pdf - 86.5 MB</a>
+
+<a href="https://katfile.com/rjw5hyezghk2/娱乐至死・童年的消逝_by_[美]尼尔·波兹曼（Neil_Postman）_著；章艳，吴燕莛_译_.pdf.html" target=_blank>娱乐至死・童年的消逝 by [美]尼尔·波兹曼（Neil Postman） 著；章艳，吴燕莛 译 .pdf - 38.7 MB</a>
+
+<a href="https://katfile.com/vtxmajb2tb7f/專業之死：為何反知識會成為社會主流，我們又該如何應對由此而生的危機？_by_Tom_Nichols_湯姆．尼可斯_鄭煥昇(譯)_.pdf.html" target=_blank>專業之死：為何反知識會成為社會主流，我們又該如何應對由此而生的危機？ by Tom Nichols 湯姆．尼可斯 鄭煥昇(譯) .pdf - 9.4 MB</a>
+
+<a href="https://katfile.com/qogoyn0k22ur/巴黎浪漫吗？关于法国的传闻与真相_by_皮乌·玛丽·伊特维尔_.pdf.html" target=_blank>巴黎浪漫吗？关于法国的传闻与真相 by 皮乌·玛丽·伊特维尔 .pdf - 59.6 MB</a>
+
+<a href="https://katfile.com/wuwuozwb6q6b/朱令中毒案汇总.pdf.html" target=_blank>朱令中毒案汇总.pdf - 12.3 MB</a>
+
+<a href="https://katfile.com/ujq2rv6pm6uf/沟通的艺术：看入人里，看出人外.pdf.html" target=_blank>沟通的艺术：看入人里，看出人外.pdf - 24.5 MB</a>
+
+<a href="https://katfile.com/xm53ysweypt4/洞穴奇案_by_彼得·萨伯_.pdf.html" target=_blank>洞穴奇案 by 彼得·萨伯 .pdf - 14.8 MB</a>
+
+<a href="https://katfile.com/7s9vkgowzto7/算法之美_指导工作与生活的算法.pdf.html" target=_blank>算法之美 指导工作与生活的算法.pdf - 5.2 MB</a>
+
+<a href="https://katfile.com/c9dydgokuv15/违童之愿：冷战时期美国儿童医学实验秘史_by_艾伦·M·霍恩布鲁姆,_朱迪斯·L·纽曼,_格雷戈里·J·多贝尔_.pdf.html" target=_blank>违童之愿：冷战时期美国儿童医学实验秘史 by 艾伦·M·霍恩布鲁姆, 朱迪斯·L·纽曼, 格雷戈里·J·多贝尔 .pdf - 98.6 MB</a>
+
