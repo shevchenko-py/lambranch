@@ -236,3 +236,36 @@
 
 <a href="https://katfile.com/75wz3mgk8cpu/错引耶稣：《圣经》传抄、更改的内幕_by_巴特·埃尔曼_.pdf.html" target=_blank>错引耶稣：《圣经》传抄、更改的内幕 by 巴特·埃尔曼 .pdf - 38.0 MB</a>
 
+
+
+### 文学
+
+<a href="https://katfile.com/tbohn12536as/《说文解字》精读_by_殷寄明_.pdf.html" target=_blank>《说文解字》精读 by 殷寄明 .pdf - 9.2 MB</a>
+
+<a href="https://katfile.com/oxee3qf1qriv/不敢恭维：游学世界看中国_by_丁学良_.pdf.html" target=_blank>不敢恭维：游学世界看中国 by 丁学良 .pdf - 1.8 MB</a>
+
+<a href="https://katfile.com/yxwvh70tfk8f/中国古典文学荟萃_(全36册).pdf.html" target=_blank>中国古典文学荟萃 (全36册).pdf - 199.9 MB</a>
+
+<a href="https://katfile.com/7optmab93ars/中文解毒_by_陳雲_.pdf.html" target=_blank>中文解毒 by 陳雲 .pdf - 14.4 MB</a>
+
+<a href="https://katfile.com/zwbo5otf7f23/创意写作_基础理论与训练_by_许道军_.pdf.html" target=_blank>创意写作 基础理论与训练 by 许道军 .pdf - 11.9 MB</a>
+
+<a href="https://katfile.com/dzb793jvnxvt/围城_汉英·对照_by_钱钟书_.pdf.html" target=_blank>围城 汉英·对照 by 钱钟书 .pdf - 24.3 MB</a>
+
+<a href="https://katfile.com/0o15pb4yyhei/奥德赛.pdf.html" target=_blank>奥德赛.pdf - 8.7 MB</a>
+
+<a href="https://katfile.com/0k097100n0r3/如何阅读一本书_by_〔美〕莫提默·J._艾德勒，查尔斯·范多伦著；郝明义，朱衣译_.pdf.html" target=_blank>如何阅读一本书 by 〔美〕莫提默·J. 艾德勒，查尔斯·范多伦著；郝明义，朱衣译 .pdf - 15.5 MB</a>
+
+<a href="https://katfile.com/spmlf8ckkztr/成为作家_Becoming_a_writer_Cheng_wei_zuo_jia_Becoming_a_writer_by_Diao,_Keli_Brande,_Dorothea_.pdf.html" target=_blank>成为作家 Becoming a writer Cheng wei zuo jia Becoming a writer by Diao, Keli Brande, Dorothea .pdf - 34.3 MB</a>
+
+<a href="https://katfile.com/1ttvoim2s2r9/李白诗选(汉英对照)SELECTED_POEMS_OF_LI_BAI_(CHINESE-ENGLISH)_by_李白_许渊冲_.pdf.html" target=_blank>李白诗选(汉英对照)SELECTED POEMS OF LI BAI (CHINESE-ENGLISH) by 李白 许渊冲 .pdf - 3.1 MB</a>
+
+<a href="https://katfile.com/qz86d4qgx47s/活着_by_余华_.pdf.html" target=_blank>活着 by 余华 .pdf - 6.5 MB</a>
+
+<a href="https://katfile.com/gt1kq7tnofa1/畅销书写作技巧_by_德怀特·V·斯温_.pdf.html" target=_blank>畅销书写作技巧 by 德怀特·V·斯温 .pdf - 13.6 MB</a>
+
+<a href="https://katfile.com/k4zdgfzmsewl/百年孤独_by_加西亚·马尔克斯,范晔_.pdf.html" target=_blank>百年孤独 by 加西亚·马尔克斯,范晔 .pdf - 13.7 MB</a>
+
+<a href="https://katfile.com/2ejtmwzqwlj4/短篇小说写作指南_Duan_pian_xiao_shuo_xie_zuo_zhi_nan_by_Array,_Array_Array,_Array_Smythe,_Sandra_Array,_Array_Dickson,_Frand_A._.pdf.html" target=_blank>短篇小说写作指南 Duan pian xiao shuo xie zuo zhi nan by Array, Array Array, Array Smythe, Sandra Array, Array Dickson, Frand A. .pdf - 10.2 MB</a>
+
+<a href="https://katfile.com/bpwb9jkot9o6/荷马史诗·伊利亚特_by_〔古希腊〕荷马著；罗念生，王焕生译_.pdf.html" target=_blank>荷马史诗·伊利亚特 by 〔古希腊〕荷马著；罗念生，王焕生译 .pdf - 20.7 MB</a>
