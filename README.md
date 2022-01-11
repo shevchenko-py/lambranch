@@ -26,6 +26,10 @@
 
 <a href="https://katfile.com/759wx3ay26kz/食物的历史_by_菲文普·费南德兹-阿梅斯托著；韩良忆译_.pdf.html" target=_blank>食物的历史 by 菲文普·费南德兹-阿梅斯托著；韩良忆译 .pdf - 46.8 MB</a>
 
+<a href="https://katfile.com/livf54qzs44k/图解女仆_by_池上良太_.pdf.html" target=_blank>图解女仆 by 池上良太 .pdf - 21.7 MB</a>
+
+<a href="https://katfile.com/vzpyxdmn8qoa/怎样征服美丽少女_by_刘国章_.pdf.html" target=_blank>怎样征服美丽少女 by 刘国章 .pdf - 14.2 MB</a>
+
 
 
 ### 心理学
@@ -105,6 +109,26 @@
 <a href="https://katfile.com/8jrn93es6dpt/自然哲学之数学原理_by_[英]牛顿_.pdf.html" target=_blank>自然哲学之数学原理 by [英]牛顿 .pdf - 25.0 MB</a>
 
 <a href="https://katfile.com/sob739vk3lhj/陶哲轩实分析.pdf.html" target=_blank>陶哲轩实分析.pdf - 44.6 MB</a>
+
+<a href="https://katfile.com/kbkke3matocx/漫画线性代数_by_[日]高桥信_腾永红(译)_.pdf.html" target=_blank>漫画线性代数 by [日]高桥信 腾永红(译) .pdf - 68.8 MB</a>
+
+<a href="https://katfile.com/ztj64rqcs3ej/现代数学手册(1)经典数学卷_by_现代数学手册编委会_.pdf.html" target=_blank>现代数学手册(1)经典数学卷 by 现代数学手册编委会 .pdf - 13.7 MB</a>
+
+<a href="https://katfile.com/iu8cmu8q2r9f/现代数学手册(2)近代数学卷_by_现代数学手册编委会_.pdf.html" target=_blank>现代数学手册(2)近代数学卷 by 现代数学手册编委会 .pdf - 16.0 MB</a>
+
+<a href="https://katfile.com/uk014incjjxa/现代数学手册(3)计算机数学卷_by_现代数学手册编委会_.pdf.html" target=_blank>现代数学手册(3)计算机数学卷 by 现代数学手册编委会 .pdf - 17.1 MB</a>
+
+<a href="https://katfile.com/u0mmcntxpl3y/现代数学手册(4)随机数学卷_by_现代数学手册编委会_.pdf.html" target=_blank>现代数学手册(4)随机数学卷 by 现代数学手册编委会 .pdf - 15.2 MB</a>
+
+<a href="https://katfile.com/hdwp6be37gw3/现代数学手册（5）经济数学卷_by_现代数学手册编委会_.pdf.html" target=_blank>现代数学手册（5）经济数学卷 by 现代数学手册编委会 .pdf - 14.0 MB</a>
+
+<a href="https://katfile.com/gyus9962r9i9/程序员的数学_by_结城浩_.pdf.html" target=_blank>程序员的数学 by 结城浩 .pdf - 48.4 MB</a>
+
+<a href="https://katfile.com/h39863p8d2zu/程序员的数学2概率统计_by_平冈和幸,堀玄_.pdf.html" target=_blank>程序员的数学2概率统计 by 平冈和幸,堀玄 .pdf - 72.1 MB</a>
+
+<a href="https://katfile.com/az4g19o8unuv/程序员的数学3线性代数_by_平冈和幸,堀玄_.pdf.html" target=_blank>程序员的数学3线性代数 by 平冈和幸,堀玄 .pdf - 47.3 MB</a>
+
+<a href="https://katfile.com/nnga8aqpojd1/线性代数_Linear_Algebra_by_同济大学数学系_.pdf.html" target=_blank>线性代数 Linear Algebra by 同济大学数学系 .pdf - 120.5 MB</a>
 
 
 
@@ -240,6 +264,20 @@
 
 <a href="https://katfile.com/75wz3mgk8cpu/错引耶稣：《圣经》传抄、更改的内幕_by_巴特·埃尔曼_.pdf.html" target=_blank>错引耶稣：《圣经》传抄、更改的内幕 by 巴特·埃尔曼 .pdf - 38.0 MB</a>
 
+<a href="https://katfile.com/pacddhitygho/大迁徙（三门峡水库拆迁移民的历史教训）_by_谢朝平_.pdf.html" target=_blank>大迁徙（三门峡水库拆迁移民的历史教训） by 谢朝平 .pdf - 1.7 MB</a>
+
+<a href="https://katfile.com/gajdp1zzsm2w/杨奎松著作集_革命_1_“中间地带”的革命_国际大背景下看中共成功之道_by_杨奎松_.pdf.html" target=_blank>杨奎松著作集 革命 1 “中间地带”的革命 国际大背景下看中共成功之道 by 杨奎松 .pdf - 34.2 MB</a>
+
+<a href="https://katfile.com/769rtugjh5zw/杨奎松著作集_革命_2_毛泽东与莫斯科的恩恩怨怨_by_杨奎松_.pdf.html" target=_blank>杨奎松著作集 革命 2 毛泽东与莫斯科的恩恩怨怨 by 杨奎松 .pdf - 46.0 MB</a>
+
+<a href="https://katfile.com/1lcpglrnjt31/杨奎松著作集_革命_3_国民党的“联共”与“反共”_by_杨奎松_.pdf.html" target=_blank>杨奎松著作集 革命 3 国民党的“联共”与“反共” by 杨奎松 .pdf - 57.0 MB</a>
+
+<a href="https://katfile.com/rhjkyer5hif7/杨奎松著作集_革命_4_西安事变新探_张学良与中共关系之谜_by_杨奎松_.pdf.html" target=_blank>杨奎松著作集 革命 4 西安事变新探 张学良与中共关系之谜 by 杨奎松 .pdf - 25.0 MB</a>
+
+<a href="https://katfile.com/1gopqn4ldj2f/胜利的困境：中华人民共和国的最初岁月_by_Jeremy_Brown,_Paul_G._Pickowicz_.pdf.html" target=_blank>胜利的困境：中华人民共和国的最初岁月 by Jeremy Brown, Paul G. Pickowicz .pdf - 48.9 MB</a>
+
+<a href="https://katfile.com/46z0xaqwc9dw/金门：内战与冷战：美、苏、中档案解密与研究_by_沈志华,_唐启华_.pdf.html" target=_blank>金门：内战与冷战：美、苏、中档案解密与研究 by 沈志华, 唐启华 .pdf - 24.5 MB</a>
+
 
 
 ### 文学
@@ -273,3 +311,30 @@
 <a href="https://katfile.com/2ejtmwzqwlj4/短篇小说写作指南_Duan_pian_xiao_shuo_xie_zuo_zhi_nan_by_Array,_Array_Array,_Array_Smythe,_Sandra_Array,_Array_Dickson,_Frand_A._.pdf.html" target=_blank>短篇小说写作指南 Duan pian xiao shuo xie zuo zhi nan by Array, Array Array, Array Smythe, Sandra Array, Array Dickson, Frand A. .pdf - 10.2 MB</a>
 
 <a href="https://katfile.com/bpwb9jkot9o6/荷马史诗·伊利亚特_by_〔古希腊〕荷马著；罗念生，王焕生译_.pdf.html" target=_blank>荷马史诗·伊利亚特 by 〔古希腊〕荷马著；罗念生，王焕生译 .pdf - 20.7 MB</a>
+
+
+
+### 传记
+
+<a href="https://katfile.com/urp7bc7dsg7s/他改变了中国：江泽民传_by_Robert_lawrence_kuhn_罗伯特·劳伦斯·库恩_.pdf.html" target=_blank>他改变了中国：江泽民传 by Robert lawrence kuhn 罗伯特·劳伦斯·库恩 .pdf - 64.9 MB</a>
+
+
+
+### 计算机
+
+<a href="https://katfile.com/rnu46x9dd96n/图解HTTP_by_上野宣_.pdf.html" target=_blank>图解HTTP by 上野宣 .pdf - 16.1 MB</a>
+
+<a href="https://katfile.com/5yaiyfmglxho/图解密码技术_by_结城浩_.pdf.html" target=_blank>图解密码技术 by 结城浩 .pdf - 76.1 MB</a>
+
+<a href="https://katfile.com/2budl5p3yuj6/数据结构与算法图解_by_[美]杰伊•温格罗，袁志鹏译_.pdf.html" target=_blank>数据结构与算法图解 by [美]杰伊•温格罗，袁志鹏译 .pdf - 9.8 MB</a>
+
+<a href="https://katfile.com/mz1a5jpuwe56/算法图解_by_[美]_Aditya_Bhargava_.pdf.html" target=_blank>算法图解 by [美] Aditya Bhargava .pdf - 17.1 MB</a>
+
+<a href="https://katfile.com/kucdsyygrv3j/编码_隐匿在计算机软硬件背后的语言_by_[美]_Charles_Petzold_.pdf.html" target=_blank>编码 隐匿在计算机软硬件背后的语言 by [美] Charles Petzold .pdf - 15.7 MB</a>
+
+<a href="https://katfile.com/ztyswwgr4zuy/计算的本质：深入剖析程序和计算机_Understanding_Computation_From_Simple_Machines_to_Impossible_Programs_by_Tom_Stuart_张伟_.pdf.html" target=_blank>计算的本质：深入剖析程序和计算机 Understanding Computation From Simple Machines to Impossible Programs by Tom Stuart 张伟 .pdf - 17.5 MB</a>
+
+
+
+
+
