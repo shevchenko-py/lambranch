@@ -1,6 +1,10 @@
 # 正仓院（伪）
 
 > 一个做资源站的朋友要跑路了。临走前从他那里要了几块硬盘，挑了一些有用的资源分享出来。
+>
+> 发布地址：https://github.com/shevchenko-py/lambranch
+>
+> 资源反馈：nova.48@[protonmail.com](mailto:nova1148@protonmail.com)
 
 ## 电子书
 
