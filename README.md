@@ -6,7 +6,7 @@
 >
 > 发布地址：https://github.com/shevchenko-py/lambranch
 >
-> 资源反馈：nova.48@[protonmail.com](mailto:nova1148@protonmail.com)
+> 资源反馈：nova.48@protonmail.com
 
 ## 电子书
 
@@ -335,6 +335,14 @@
 <a href="https://katfile.com/kucdsyygrv3j/编码_隐匿在计算机软硬件背后的语言_by_[美]_Charles_Petzold_.pdf.html" target=_blank>编码 隐匿在计算机软硬件背后的语言 by [美] Charles Petzold .pdf - 15.7 MB</a>
 
 <a href="https://katfile.com/ztyswwgr4zuy/计算的本质：深入剖析程序和计算机_Understanding_Computation_From_Simple_Machines_to_Impossible_Programs_by_Tom_Stuart_张伟_.pdf.html" target=_blank>计算的本质：深入剖析程序和计算机 Understanding Computation From Simple Machines to Impossible Programs by Tom Stuart 张伟 .pdf - 17.5 MB</a>
+
+<a href="https://katfile.com/33icpremcw7c/C++_Primer_Plus_第6版_中文版_by_Stephen_Prata_.pdf.html" target=_blank>C++ Primer Plus 第6版 中文版 by Stephen Prata .pdf - 300.8 MB</a>
+
+<a href="https://katfile.com/ig2ojwf2fesu/C++_程序设计语言：第4部分_标准库（原书第4版_by_Bjarne_Stroustrup_.pdf.html" target=_blank>C++ 程序设计语言：第4部分 标准库（原书第4版 by Bjarne Stroustrup .pdf - 85.9 MB</a>
+
+<a href="https://katfile.com/absn1vacawdk/C++程序设计语言.第1～3部分.原书第4版_by_Bjarne_Stroustrup_.pdf.html" target=_blank>C++程序设计语言.第1～3部分.原书第4版 by Bjarne Stroustrup .pdf - 157.9 MB</a>
+
+<a href="https://katfile.com/l8u1z6thvrl2/Qt高级编程_[Advanced_Qt_ProgrammingCreating_Great_Software_with_C++_and_Qt_4](中文版)_by_[英]_萨默菲尔德（Mark_Summerfield）_著，白建平_等_译_.pdf.html" target=_blank>Qt高级编程 Advanced Qt ProgrammingCreating Great Software with C++ and Qt 4](中文版) by [英] 萨默菲尔德（Mark Summerfield） 著，白建平 等 译 .pdf - 41.3 MB</a>
 
 
 
