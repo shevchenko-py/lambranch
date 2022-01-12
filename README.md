@@ -2,6 +2,8 @@
 
 > 一个做资源站的朋友要跑路了。临走前从他那里要了几块硬盘，挑了一些有用的资源分享出来。
 >
+> 资源整理中，随时更新。
+>
 > 发布地址：https://github.com/shevchenko-py/lambranch
 >
 > 资源反馈：nova.48@[protonmail.com](mailto:nova1148@protonmail.com)
@@ -335,6 +337,130 @@
 <a href="https://katfile.com/ztyswwgr4zuy/计算的本质：深入剖析程序和计算机_Understanding_Computation_From_Simple_Machines_to_Impossible_Programs_by_Tom_Stuart_张伟_.pdf.html" target=_blank>计算的本质：深入剖析程序和计算机 Understanding Computation From Simple Machines to Impossible Programs by Tom Stuart 张伟 .pdf - 17.5 MB</a>
 
 
+
+## 一般漫画
+
+<a href="https://katfile.com/xr6769x06s3n/1.2三四郎2.zip.html" target=_blank>1.2三四郎2.zip - 186.5 MB</a>
+
+<a href="https://katfile.com/gxk3hr0l4y9r/14岁.zip.html" target=_blank>14岁.zip - 588.1 MB</a>
+
+<a href="https://katfile.com/um7kswsfkotm/BIRTH_螺天.zip.html" target=_blank>BIRTH 螺天.zip - 201.4 MB</a>
+
+<a href="https://katfile.com/h3oj33to0a7o/《尼尔：机械纪元》攻略设定资料集.zip.html" target=_blank>《尼尔：机械纪元》攻略设定资料集.zip - 39.4 MB</a>
+
+<a href="https://katfile.com/y4lsvbp0oy4r/《魂斗羅》完全攻略本.zip.html" target=_blank>《魂斗羅》完全攻略本.zip - 6.0 MB</a>
+
+<a href="https://katfile.com/859skvbh2bq4/不堪一擊.zip.html" target=_blank>不堪一擊.zip - 23.6 MB</a>
+
+<a href="https://katfile.com/wgi07vugx43y/爱情蛙跳跳.zip.html" target=_blank>爱情蛙跳跳.zip - 227.7 MB</a>
+
+<a href="https://katfile.com/0tq2ur6lav1d/白秋練.zip.html" target=_blank>白秋練.zip - 17.8 MB</a>
+
+<a href="https://katfile.com/iwn3dcrlwgxt/變身123.zip.html" target=_blank>變身123.zip - 530.5 MB</a>
+
+<a href="https://katfile.com/e0hmwqqwrpe5/阿貢.zip.html" target=_blank>阿貢.zip - 206.0 MB</a>
+
+
+
+## 本子
+
+<a href="https://katfile.com/o212q878i549/(COMIC1☆4)_[Saigado_(Saigado)]_F-NERD_Rebuild_of_Another_Time,_Another_Place._(Neon_Genesis_Evangelion)_[Chinese].ZIP.html" target=_blank>(COMIC1☆4) [Saigado (Saigado)] F-NERD Rebuild of Another Time, Another Place. (Neon Genesis Evangelion) [Chinese].ZIP - 14.4 MB</a>
+
+<a href="https://katfile.com/qpn5fm5t0b16/(成年コミック)_[08-12-15]_[MGジョー]_母乳_ははちち.ZIP.html" target=_blank>(成年コミック) [08-12-15] [MGジョー] 母乳 ははちち.ZIP - 118.2 MB</a>
+
+<a href="https://katfile.com/2u1kdyimhkls/(成年コミック)_[タカスギコウ]_禁断の母穴_[熟研坊][中文化].ZIP.html" target=_blank>(成年コミック) 禁断の母穴 .ZIP - 110.8 MB</a>
+
+<a href="https://katfile.com/7npbe0eff3i1/(成年コミック)_[丹下スズキ]_ママの香りとあそこの匂い.ZIP.html" target=_blank>(成年コミック) [丹下スズキ] ママの香りとあそこの匂い.ZIP - 95.0 MB</a>
+
+<a href="https://katfile.com/m1bh2apxda7w/(成年コミック)_[十六夜清心x山咲まさと]_M女専科_(中文).ZIP.html" target=_blank>(成年コミック) [十六夜清心x山咲まさと] M女専科 (中文).ZIP - 97.2 MB</a>
+
+<a href="https://katfile.com/4bzi3azu67hs/(成年コミック)_[華フック]_母親失格・エリート親子のM豚寝取られ転落人生_[DL版].ZIP.html" target=_blank>(成年コミック) [華フック] 母親失格・エリート親子のM豚寝取られ転落人生 [DL版].ZIP - 238.9 MB</a>
+
+<a href="https://katfile.com/fp418vuu8hro/COMIC_快楽天_2009年02月号_-_僕のユキ先生.ZIP.html" target=_blank>COMIC 快楽天 2009年02月号 - 僕のユキ先生.ZIP - 4.1 MB</a>
+
+<a href="https://katfile.com/cteuspgwc9te/COMIC_快楽天_2010年03月号_-_教え子の恩返し.zip.html" target=_blank>COMIC 快楽天 2010年03月号 - 教え子の恩返し.zip - 12.6 MB</a>
+
+<a href="https://katfile.com/8wg9jqoxcbtn/[Cxming26个人汉化][華フック]_母親失格_私と息子のメス豚寝取られ復讐劇.ZIP.html" target=_blank> 母親失格 私と息子のメス豚寝取られ復讐劇.ZIP - 210.8 MB</a>
+
+<a href="https://katfile.com/oxzsouuq3hti/[Cxming26个人汉化][華フック]_お母さんの交尾.ZIP.html" target=_blank>お母さんの交尾.ZIP - 9.2 MB</a>
+
+<a href="https://katfile.com/hs12h0l0elcl/[DISTANCE]_じょしラク！2Years_Later_2_淫女桃花運！2_Years_Later2.zip.html" target=_blank>[DISTANCE] じょしラク！2Years Later 2 淫女桃花運！2 Years Later2.zip - 244.9 MB</a>
+
+<a href="https://katfile.com/t6pnhj2mo2bx/[DISTANCE]_じょしラク！2Years_Later_2_淫女桃花運！2_Years_Later2.zip.html" target=_blank>[DISTANCE] じょしラク！2Years Later 2 淫女桃花運！2 Years Later2.zip - 244.9 MB</a>
+
+<a href="https://katfile.com/tmwrjsgyzw1r/[DISTANCE]_じょしラク！～2_Years_Later～_+DMM特典_淫女桃花運！.zip.html" target=_blank>[DISTANCE] じょしラク！～2 Years Later～ +DMM特典 淫女桃花運！.zip - 471.7 MB</a>
+
+<a href="https://katfile.com/bgy7e0y5kqwc/[Doomqiuqiu汉化][華フック]_母とイケメン×僕とズリネタ.ZIP.html" target=_blank>母とイケメン×僕とズリネタ.ZIP - 19.8 MB</a>
+
+<a href="https://katfile.com/n9qhk9i57aug/[Hamao]_温かくて柔らかくて_+_とらのあな限定特典_柔軟又溫暖之物_+_虎之穴限定特典_[風的工房漢化].zip.html" target=_blank>[Hamao] 温かくて柔らかくて + とらのあな限定特典 柔軟又溫暖之物 + 虎之穴限定特典 [風的工房漢化].zip - 66.7 MB</a>
+
+<a href="https://katfile.com/dszqy19u52e0/[MMScan064][タカスギコウ]_俺の母親_[C1841].ZIP.html" target=_blank>俺の母親 .ZIP - 73.7 MB</a>
+
+<a href="https://katfile.com/7g549n65vf21/[REDLIGHT]_友達の母を犯す！～もうガマンできない～_[中文].ZIP.html" target=_blank>[REDLIGHT] 友達の母を犯す！～もうガマンできない～ [中文].ZIP - 2.0 MB</a>
+
+<a href="https://katfile.com/xdahzfoofinm/[えいとまん]_本能_V2_[無水印].zip.html" target=_blank>[えいとまん] 本能 V2 [無水印].zip - 237.7 MB</a>
+
+<a href="https://katfile.com/drnday18uawk/[かるま龍狼][艶ママ][貪狼閣][中漫].ZIP.html" target=_blank>艶ママ.ZIP - 95.6 MB</a>
+
+<a href="https://katfile.com/l0t2v24edmk5/[中]]母親失格.私と息子のメス豚寝取られ性教育.ZIP.html" target=_blank>[中]]母親失格.私と息子のメス豚寝取られ性教育.ZIP - 27.7 MB</a>
+
+<a href="https://katfile.com/2noi7qfbx0i5/[丹下スズキ]_ママがイク！僕はドピュッ![29].ZIP.html" target=_blank>[丹下スズキ] ママがイク！僕はドピュッ![29].ZIP - 60.0 MB</a>
+
+<a href="https://katfile.com/6099h0do6ma1/[井硲六郎]_變態家族_(漢化).ZIP.html" target=_blank>[井硲六郎] 變態家族 (漢化).ZIP - 7.3 MB</a>
+
+<a href="https://katfile.com/co9xy2i4bpol/[千家カゲロー]_優等生ママの秘密の教育.ZIP.html" target=_blank>[千家カゲロー] 優等生ママの秘密の教育.ZIP - 11.6 MB</a>
+
+<a href="https://katfile.com/h9x0fdclzvxs/[千家カゲロー]_息子の目の前で_1-2話_[XW舞舞].ZIP.html" target=_blank>[千家カゲロー] 息子の目の前で 1-2話 [XW舞舞].ZIP - 8.5 MB</a>
+
+<a href="https://katfile.com/rlzau8gtxr1p/[千家カゲロー]_息子の目の前で3.ZIP.html" target=_blank>[千家カゲロー] 息子の目の前で3.ZIP - 3.7 MB</a>
+
+<a href="https://katfile.com/t36fppekp2dp/[小柳ロイヤル]_マザーズサイド_放課後の妻たち_(月之废墟漢化).ZIP.html" target=_blank>[小柳ロイヤル] マザーズサイド 放課後の妻たち (月之废墟漢化).ZIP - 25.4 MB</a>
+
+<a href="https://katfile.com/x9ym2k1x2bxr/[悠月工房][REDLIGHT]_友達の母を犯す！～もうガマンできない～[22P.2].ZIP.html" target=_blank>友達の母を犯す！～もうガマンできない～.ZIP - 2.0 MB</a>
+
+<a href="https://katfile.com/vtv1h58pysle/[月之废墟汉化][彩画堂]_M-Bation_(新世紀エヴァンゲリオン).ZIP.html" target=_blank> M-Bation (新世紀エヴァンゲリオン).ZIP - 18.2 MB</a>
+
+<a href="https://katfile.com/44cdhlq2zqbs/[木静謙二]_Mix_Edge_みっくす_えっち_第1話.ZIP.html" target=_blank>[木静謙二] Mix Edge みっくす えっち 第1話.ZIP - 45.4 MB</a>
+
+<a href="https://katfile.com/ra48y7szh712/[木静謙二]ALL_I_WANT.ZIP.html" target=_blank>[木静謙二]ALL I WANT.ZIP - 7.0 MB</a>
+
+<a href="https://katfile.com/oc94k0k0bz8e/[木静謙二]My_Home_Town.ZIP.html" target=_blank>[木静謙二]My Home Town.ZIP - 7.3 MB</a>
+
+<a href="https://katfile.com/k7qa36zuzfn3/[木静謙二]show_Down_前編.ZIP.html" target=_blank>[木静謙二]show Down 前編.ZIP - 24.6 MB</a>
+
+<a href="https://katfile.com/t2b099uixant/[木静謙二]女教師に告ぐ～国語教師_春日美奈子編～.ZIP.html" target=_blank>[木静謙二]女教師に告ぐ～国語教師 春日美奈子編～.ZIP - 9.6 MB</a>
+
+<a href="https://katfile.com/747m6ko0bdid/[比呂カズキ]_継母の虜_(COMIC_ペンギンクラブ山賊版_2012年09月号).ZIP.html" target=_blank>[比呂カズキ] 継母の虜 (COMIC ペンギンクラブ山賊版 2012年09月号).ZIP - 10.7 MB</a>
+
+<a href="https://katfile.com/z4glrv4wyell/[甚六]_ブルマママ_新装版_(無修正版).ZIP.html" target=_blank>[甚六] ブルマママ 新装版 (無修正版).ZIP - 162.6 MB</a>
+
+<a href="https://katfile.com/igp11s076k7t/[甚六]_思春期は発情期。.ZIP.html" target=_blank>[甚六] 思春期は発情期。.ZIP - 66.3 MB</a>
+
+<a href="https://katfile.com/sp41ns05viof/[甚六]えくすとらばぁじんぶれいく.ZIP.html" target=_blank>[甚六]えくすとらばぁじんぶれいく.ZIP - 14.9 MB</a>
+
+<a href="https://katfile.com/pzpqaf6jd062/[甚六]ブルマママ.ZIP.html" target=_blank>[甚六]ブルマママ.ZIP - 11.7 MB</a>
+
+<a href="https://katfile.com/zbex37querv3/[空気系★漢化]_[電気将軍]_おとまり.ZIP.html" target=_blank>[空気系★漢化] [電気将軍] おとまり.ZIP - 34.3 MB</a>
+
+<a href="https://katfile.com/ece4var7tniw/[華フック]_母親失格.私は息子友達のメス豚奴隷_(オリジナル).ZIP.html" target=_blank>[華フック] 母親失格.私は息子友達のメス豚奴隷 (オリジナル).ZIP - 86.7 MB</a>
+
+<a href="https://katfile.com/ymachmccdz1e/[閃亮的渣誠個人漢化][甚六]お姉ちやんなんか大嫌い！！.ZIP.html" target=_blank>お姉ちやんなんか大嫌い！！.ZIP - 9.2 MB</a>
+
+<a href="https://katfile.com/2drzg3qb1p23/[飛龍乱]ママに射精しちゃダメぇ～!1.ZIP.html" target=_blank>[飛龍乱]ママに射精しちゃダメぇ～!1.ZIP - 109.1 MB</a>
+
+<a href="https://katfile.com/1qggzywoe6le/[黒岩瑪瑙]堕落母子.ZIP.html" target=_blank>[黒岩瑪瑙]堕落母子.ZIP - 33.0 MB</a>
+
+<a href="https://katfile.com/0i656iwz125n/小红帽妈妈[简体中文].ZIP.html" target=_blank>小红帽妈妈[简体中文].ZIP - 5.8 MB</a>
+
+<a href="https://katfile.com/ljqvgjvo8jo4/木静谦二另外两篇加以短篇.ZIP.html" target=_blank>木静谦二另外两篇加以短篇.ZIP - 17.8 MB</a>
+
+<a href="https://katfile.com/ebg0k0kbiicc/母1.ZIP.html" target=_blank>母1.ZIP - 31.3 MB</a>
+
+<a href="https://katfile.com/zqqbdnkl9h4j/母2.ZIP.html" target=_blank>母2.ZIP - 8.3 MB</a>
+
+<a href="https://katfile.com/z8lceqlm9cnn/母3.ZIP.html" target=_blank>母3.ZIP - 28.4 MB</a>
+
+<a href="https://katfile.com/uy0h0jyayknl/母の哭く家.ZIP.html" target=_blank>母の哭く家.ZIP - 64.8 MB</a>
 
 
 
