@@ -32,6 +32,12 @@
 
 <a href="https://katfile.com/vzpyxdmn8qoa/怎样征服美丽少女_by_刘国章_.pdf.html" target=_blank>怎样征服美丽少女 by 刘国章 .pdf - 14.2 MB</a>
 
+<a href="https://katfile.com/zn5m1o3cld2b/一箭三雕_——_中国当代资本大鳄发迹真幕_by_余郑华_(花荣)_成刚_.pdf.html" target=_blank>一箭三雕 —— 中国当代资本大鳄发迹真幕 by 余郑华 (花荣) 成刚 .pdf - 11.7 MB</a>
+
+<a href="https://katfile.com/ht03mbssmofp/史上最全的苏联政治笑话288条_by_无_.pdf.html" target=_blank>史上最全的苏联政治笑话288条 by 无 .pdf - 604 KB</a>
+
+<a href="https://katfile.com/bew776aytdu6/日本人眼中的中國：過去與現在_by_尾形勇,鶴間和幸,上田信,葛劍雄,王勇,礪波護,陳柏傑[译]_.pdf.html" target=_blank>日本人眼中的中國：過去與現在 by 尾形勇,鶴間和幸,上田信,葛劍雄,王勇,礪波護,陳柏傑[译] .pdf - 16.0 MB</a>
+
 
 
 ### 心理学
