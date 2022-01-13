@@ -1,5 +1,9 @@
 # lambranch
 
+> https://github.com/shevchenko-py/lambranch
+>
+> 资源反馈nova.48@protonmail.com
+
 ## 数学
 
 <a href="https://katfile.com/0z5lro10j4c2/什么是数学：对思想和方法的基本研究_by_[美]R‧柯朗_H‧罗宾_I‧斯图尔特(修订)_左平(译)_张饴慈(译)_.pdf.html" target=_blank>什么是数学：对思想和方法的基本研究 by [美]R‧柯朗 H‧罗宾 I‧斯图尔特(修订) 左平(译) 张饴慈(译) .pdf - 19.1 MB</a>
@@ -94,13 +98,15 @@
 
 <a href="https://katfile.com/qkrsczj9rlk9/臣纲清代文官的游戏规则_by_艾永明_，李晟_.pdf.html" target=_blank>臣纲清代文官的游戏规则 by 艾永明 ，李晟 .pdf - 9.9 MB</a>
 
-<a href="https://katfile.com/zso9l5h6eygv/重考高崗,_饒漱石「反黨」事件_by_林蘊暉_.pdf.html" target=_blank>重考高崗, 饒漱石「反黨」事件 by 林蘊暉 .pdf - 140.1 MB</a>
-
 <a href="https://katfile.com/46z0xaqwc9dw/金门：内战与冷战：美、苏、中档案解密与研究_by_沈志华,_唐启华_.pdf.html" target=_blank>金门：内战与冷战：美、苏、中档案解密与研究 by 沈志华, 唐启华 .pdf - 24.5 MB</a>
 
 <a href="https://katfile.com/75wz3mgk8cpu/错引耶稣：《圣经》传抄、更改的内幕_by_巴特·埃尔曼_.pdf.html" target=_blank>错引耶稣：《圣经》传抄、更改的内幕 by 巴特·埃尔曼 .pdf - 38.0 MB</a>
 
-<a href="https://katfile.com/qoudpmpkcem4/長春餓殍戰_中國國共內戰最慘烈的圍困1947.11.4-1948.10.19_by_杜斌_.pdf.html" target=_blank>長春餓殍戰 中國國共內戰最慘烈的圍困1947.11.4-1948.10.19 by 杜斌 .pdf - 164.8 MB</a>
+<a href="https://katfile.com/mebng5ozgqas/文革時期中國農村的集體殺戮_by_蘇陽,_宋熙_.pdf.html" target=_blank>文革時期中國農村的集體殺戮 by 蘇陽, 宋熙 .pdf - 5.6 MB</a>
+
+<a href="https://katfile.com/pd5hgat61j1f/清代前期的政治认同与历史书写_by_陈永明_.pdf.html" target=_blank>清代前期的政治认同与历史书写 by 陈永明 .pdf - 41.9 MB</a>
+
+<a href="https://katfile.com/oh0kaoks35e5/魏晋之际的政治权力与家族网络_by_仇鹿鸣_.pdf.html" target=_blank>魏晋之际的政治权力与家族网络 by 仇鹿鸣 .pdf - 41.6 MB</a>
 
 
 
@@ -213,6 +219,16 @@
 <a href="https://katfile.com/kucdsyygrv3j/编码_隐匿在计算机软硬件背后的语言_by_[美]_Charles_Petzold_.pdf.html" target=_blank>编码 隐匿在计算机软硬件背后的语言 by [美] Charles Petzold .pdf - 15.7 MB</a>
 
 <a href="https://katfile.com/ztyswwgr4zuy/计算的本质：深入剖析程序和计算机_Understanding_Computation_From_Simple_Machines_to_Impossible_Programs_by_Tom_Stuart_张伟_.pdf.html" target=_blank>计算的本质：深入剖析程序和计算机 Understanding Computation From Simple Machines to Impossible Programs by Tom Stuart 张伟 .pdf - 17.5 MB</a>
+
+<a href="https://katfile.com/6zfy0nput2py/天才与算法：人脑与AI的数学思维（AI人工智能算法书籍，数学思维理解算法，引领人们认知创造力的本质）_by_马库斯·杜·索托伊（Marcus_du_Sautoy）_[Sautoy）,_马库斯·杜·索托伊（Marcus_du]_.pdf.html" target=_blank>天才与算法：人脑与AI的数学思维（AI人工智能算法书籍，数学思维理解算法，引领人们认知创造力的本质） by 马库斯·杜·索托伊（Marcus du Sautoy） [Sautoy）, 马库斯·杜·索托伊（Marcus du] .pdf - 3.3 MB</a>
+
+<a href="https://katfile.com/azkj91hnt17u/漫画算法：小灰的算法之旅_by_魏梦舒_.pdf.html" target=_blank>漫画算法：小灰的算法之旅 by 魏梦舒 .pdf - 34.5 MB</a>
+
+<a href="https://katfile.com/g421fwr8ssbp/算法（第四版）中文版_图灵程序设计丛书_Algorithms_(Incomplete)_by_美_Robert_Sedgewick_美_Kevin_Wayne译_谢路云_.pdf.html" target=_blank>算法（第四版）中文版 图灵程序设计丛书 Algorithms (Incomplete) by 美 Robert Sedgewick 美 Kevin Wayne译 谢路云 .pdf - 24.3 MB</a>
+
+<a href="https://katfile.com/49qs8acwshd0/计算机算法基础_by_余祥宣，崔国华，邹海明_.pdf.html" target=_blank>计算机算法基础 by 余祥宣，崔国华，邹海明 .pdf - 7.7 MB</a>
+
+<a href="https://katfile.com/zvnd23ricigp/问题求解：算法与数据结构（Python_版）_by_北京大学地空学院数据结构与算法课程_2015年及2016年上课同学_.pdf.html" target=_blank>问题求解：算法与数据结构（Python 版） by 北京大学地空学院数据结构与算法课程 2015年及2016年上课同学 .pdf - 10.9 MB</a>
 
 
 
@@ -338,6 +354,8 @@
 
 <a href="https://katfile.com/759wx3ay26kz/食物的历史_by_菲文普·费南德兹-阿梅斯托著；韩良忆译_.pdf.html" target=_blank>食物的历史 by 菲文普·费南德兹-阿梅斯托著；韩良忆译 .pdf - 46.8 MB</a>
 
+<a href="https://katfile.com/qj5rskiuz1ib/水浒传_怎样的强盗书_by_孙述宇_.pdf.html" target=_blank>水浒传 怎样的强盗书 by 孙述宇 .pdf - 20.1 MB</a>
+
 
 
 ## 艺术
@@ -388,6 +406,12 @@
 
 <a href="https://katfile.com/fgfea9f2xq04/逻辑学导论_by_柯匹,_科恩_.pdf.html" target=_blank>逻辑学导论 by 柯匹, 科恩 .pdf - 45.4 MB</a>
 
+<a href="https://katfile.com/bmdg3on08ef1/“六十四卦”中的人生哲理与谋略――《易经》对话录_by_孙映逵_.pdf.html" target=_blank>“六十四卦”中的人生哲理与谋略――《易经》对话录 by 孙映逵 .pdf - 10.3 MB</a>
+
+<a href="https://katfile.com/5jo3bj81jv16/中国哲学十九讲_by_牟宗三(撰)_.pdf.html" target=_blank>中国哲学十九讲 by 牟宗三(撰) .pdf - 16.0 MB</a>
+
+<a href="https://katfile.com/7yghpaj6jqc7/周易译注_by_黄寿祺,张善文_.pdf.html" target=_blank>周易译注 by 黄寿祺,张善文 .pdf - 38.3 MB</a>
+
 
 
 ## 经济学
@@ -429,4 +453,28 @@
 <a href="https://katfile.com/zztogzpvjycs/资本主义是怎样在苏联复辟的_by_〔美〕革命联盟_上海外国语学院译_.pdf.html" target=_blank>资本主义是怎样在苏联复辟的 by 〔美〕革命联盟 上海外国语学院译 .pdf - 14.7 MB</a>
 
 <a href="https://katfile.com/0g2nqxf6avz2/资本论（全三卷）_by_〔德〕卡尔·马克思著；中共中央马克思恩格斯列宁斯大林著作编译局译_.pdf.html" target=_blank>资本论（全三卷） by 〔德〕卡尔·马克思著；中共中央马克思恩格斯列宁斯大林著作编译局译 .pdf - 57.6 MB</a>
+
+
+
+## 古籍
+
+<a href="https://katfile.com/w5rded1e19ch/东林本末_by_吴应箕等_.pdf.html" target=_blank>东林本末 by 吴应箕等 .pdf - 17.9 MB</a>
+
+<a href="https://katfile.com/bvqdbpdqkuzb/南翔镇志_by_（清）张承先_（清）程攸熙_订_.pdf.html" target=_blank>南翔镇志 by （清）张承先 （清）程攸熙 订 .pdf - 4.6 MB</a>
+
+<a href="https://katfile.com/4wr4roc8oyim/明季稗史初编_by_文秉、顾炎武_等_.pdf.html" target=_blank>明季稗史初编 by 文秉、顾炎武 等 .pdf - 8.2 MB</a>
+
+<a href="https://katfile.com/h4cld3os4v9f/汉魏六朝笔记小说大观历代笔记小说大观_by_上海古籍出版社_.pdf.html" target=_blank>汉魏六朝笔记小说大观历代笔记小说大观 by 上海古籍出版社 .pdf - 30.7 MB</a>
+
+<a href="https://katfile.com/qub7hazz2wd9/錢注杜詩（上下）_by_杜甫_錢謙益_.pdf.html" target=_blank>錢注杜詩（上下） by 杜甫 錢謙益 .pdf - 23.5 MB</a>
+
+<a href="https://katfile.com/g9faad90a9jg/阅微草堂笔记_by_纪昀_.pdf.html" target=_blank>阅微草堂笔记 by 纪昀 .pdf - 22.0 MB</a>
+
+<a href="https://katfile.com/dk2fjj991ose/黄帝四经今注今译_马王堆汉墓出土帛书_by_陈鼓应_.pdf.html" target=_blank>黄帝四经今注今译 马王堆汉墓出土帛书 by 陈鼓应 .pdf - 9.5 MB</a>
+
+
+
+## 考古
+
+<a href="https://katfile.com/aahaw49be75x/二十世纪出土简帛综述_by_骈宇骞、段书安_.pdf.html" target=_blank>二十世纪出土简帛综述 by 骈宇骞、段书安 .pdf - 40.6 MB</a>
 
