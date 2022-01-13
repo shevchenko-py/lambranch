@@ -112,8 +112,6 @@
 
 <a href="https://katfile.com/75wz3mgk8cpu/错引耶稣：《圣经》传抄、更改的内幕_by_巴特·埃尔曼_.pdf.html" target=_blank>错引耶稣：《圣经》传抄、更改的内幕 by 巴特·埃尔曼 .pdf - 38.0 MB</a>
 
-<a href="https://katfile.com/mebng5ozgqas/文革時期中國農村的集體殺戮_by_蘇陽,_宋熙_.pdf.html" target=_blank>文革時期中國農村的集體殺戮 by 蘇陽, 宋熙 .pdf - 5.6 MB</a>
-
 <a href="https://katfile.com/pd5hgat61j1f/清代前期的政治认同与历史书写_by_陈永明_.pdf.html" target=_blank>清代前期的政治认同与历史书写 by 陈永明 .pdf - 41.9 MB</a>
 
 <a href="https://katfile.com/oh0kaoks35e5/魏晋之际的政治权力与家族网络_by_仇鹿鸣_.pdf.html" target=_blank>魏晋之际的政治权力与家族网络 by 仇鹿鸣 .pdf - 41.6 MB</a>
@@ -182,9 +180,9 @@
 
 
 
-## 科普
+## 社会学
 
-<a href="https://katfile.com/4we81ejxaw10/[煤老板自述三十年].老五.劲飞.著.扫描版[小电驴www.XiaoDianLv.com].pdf.html" target=_blank>[煤老板自述三十年].老五.劲飞.著.扫描版[小电驴www.XiaoDianLv.com].pdf - 23.3 MB</a>
+<a href="https://katfile.com/4we81ejxaw10/[煤老板自述三十年].老五.劲飞.著.扫描版[小电驴www.XiaoDianLv.com].pdf.html" target=_blank>煤老板自述三十年.老五.劲飞.著.扫描版.pdf - 23.3 MB</a>
 
 <a href="https://katfile.com/whtdq9tkommw/人人都在说谎赤裸裸的数据真相_by_赛思•斯蒂芬斯-达维多维茨.pdf.html" target=_blank>人人都在说谎赤裸裸的数据真相 by 赛思•斯蒂芬斯-达维多维茨.pdf - 5.2 MB</a>
 
