@@ -4,6 +4,16 @@
 >
 > 资源反馈nova.48@protonmail.com
 
+
+
+## 版权说明
+
+> 本仓库分享资料以知识共享为原则 
+>
+> 如分享内容资料违反您的权益，请发送邮件告知
+
+
+
 ## 数学
 
 <a href="https://katfile.com/0z5lro10j4c2/什么是数学：对思想和方法的基本研究_by_[美]R‧柯朗_H‧罗宾_I‧斯图尔特(修订)_左平(译)_张饴慈(译)_.pdf.html" target=_blank>什么是数学：对思想和方法的基本研究 by [美]R‧柯朗 H‧罗宾 I‧斯图尔特(修订) 左平(译) 张饴慈(译) .pdf - 19.1 MB</a>
@@ -304,6 +314,8 @@
 
 <a href="https://katfile.com/c9dydgokuv15/违童之愿：冷战时期美国儿童医学实验秘史_by_艾伦·M·霍恩布鲁姆,_朱迪斯·L·纽曼,_格雷戈里·J·多贝尔_.pdf.html" target=_blank>违童之愿：冷战时期美国儿童医学实验秘史 by 艾伦·M·霍恩布鲁姆, 朱迪斯·L·纽曼, 格雷戈里·J·多贝尔 .pdf - 98.6 MB</a>
 
+<a href="https://katfile.com/0dlivabmergg/南中國的世界城：廣州的非洲人與低端全球化_by_麥高登（Gordon_Mathews）,_林丹_,楊瑒_.pdf.html" target=_blank>南中國的世界城：廣州的非洲人與低端全球化 by 麥高登（Gordon Mathews）, 林丹 ,楊瑒 .pdf - 13.5 MB</a>
+
 
 
 ## 心理学
@@ -477,4 +489,96 @@
 ## 考古
 
 <a href="https://katfile.com/aahaw49be75x/二十世纪出土简帛综述_by_骈宇骞、段书安_.pdf.html" target=_blank>二十世纪出土简帛综述 by 骈宇骞、段书安 .pdf - 40.6 MB</a>
+
+
+
+## 哆啦A梦
+
+<a href="https://katfile.com/wncci9q29blm/[哆啦A梦PLUS]第1卷.zip.html" target=_blank>[哆啦A梦PLUS]第1卷.zip - 31.3 MB</a>
+
+<a href="https://katfile.com/zbbwxrkenf5y/[哆啦A梦PLUS]第2卷.zip.html" target=_blank>[哆啦A梦PLUS]第2卷.zip - 13.7 MB</a>
+
+<a href="https://katfile.com/x8ijtfytgwiq/[哆啦A梦PLUS]第3卷.zip.html" target=_blank>[哆啦A梦PLUS]第3卷.zip - 14.4 MB</a>
+
+<a href="https://katfile.com/wf1sl1obwcli/[哆啦A梦PLUS]第4卷.zip.html" target=_blank>[哆啦A梦PLUS]第4卷.zip - 14.1 MB</a>
+
+<a href="https://katfile.com/30hc6oy8fu18/[哆啦A梦PLUS]第5卷.zip.html" target=_blank>[哆啦A梦PLUS]第5卷.zip - 14.5 MB</a>
+
+<a href="https://katfile.com/njmg3hkrdo3i/[哆啦A梦PLUS]第6卷.zip.html" target=_blank>[哆啦A梦PLUS]第6卷.zip - 40.6 MB</a>
+
+<a href="https://katfile.com/e0om44p6sxwg/[哆啦A梦大长篇]Vol_01_大雄的恐龙.zip.html" target=_blank>[哆啦A梦大长篇]Vol_01_大雄的恐龙.zip - 20.2 MB</a>
+
+<a href="https://katfile.com/9cg23eub72d7/[哆啦A梦大长篇]Vol_02_宇宙开拓史.zip.html" target=_blank>[哆啦A梦大长篇]Vol_02_宇宙开拓史.zip - 20.2 MB</a>
+
+<a href="https://katfile.com/m39jqwlxyhl3/[哆啦A梦大长篇]Vol_03_大魔境.zip.html" target=_blank>[哆啦A梦大长篇]Vol_03_大魔境.zip - 21.5 MB</a>
+
+<a href="https://katfile.com/mgq9u1pavsux/[哆啦A梦大长篇]Vol_04_海底鬼岩城.zip.html" target=_blank>[哆啦A梦大长篇]Vol_04_海底鬼岩城.zip - 18.1 MB</a>
+
+<a href="https://katfile.com/nrqjjw7x0f9a/[哆啦A梦大长篇]Vol_05_魔界大冒险.zip.html" target=_blank>[哆啦A梦大长篇]Vol_05_魔界大冒险.zip - 18.2 MB</a>
+
+<a href="https://katfile.com/xnavqj6ic0ex/[哆啦A梦大长篇]Vol_06_宇宙小战争.zip.html" target=_blank>[哆啦A梦大长篇]Vol_06_宇宙小战争.zip - 17.4 MB</a>
+
+<a href="https://katfile.com/xijz2mrtd66o/[哆啦A梦大长篇]Vol_07_铁人兵团.zip.html" target=_blank>[哆啦A梦大长篇]Vol_07_铁人兵团.zip - 18.5 MB</a>
+
+<a href="https://katfile.com/ww0093v9aifp/[哆啦A梦大长篇]Vol_08_龙骑士.zip.html" target=_blank>[哆啦A梦大长篇]Vol_08_龙骑士.zip - 33.8 MB</a>
+
+<a href="https://katfile.com/x3lijld1ycut/[哆啦A梦大长篇]Vol_09_日本诞生.zip.html" target=_blank>[哆啦A梦大长篇]Vol_09_日本诞生.zip - 23.2 MB</a>
+
+<a href="https://katfile.com/kfa6uzwjn0of/[哆啦A梦大长篇]Vol_10_惑星之迷.zip.html" target=_blank>[哆啦A梦大长篇]Vol_10_惑星之迷.zip - 22.4 MB</a>
+
+<a href="https://katfile.com/d3142rnw7pfb/[哆啦A梦大长篇]Vol_11_天方夜谭.zip.html" target=_blank>[哆啦A梦大长篇]Vol_11_天方夜谭.zip - 21.6 MB</a>
+
+<a href="https://katfile.com/qxziwba1lsr4/[哆啦A梦大长篇]Vol_12_大雄的梦幻王国.zip.html" target=_blank>[哆啦A梦大长篇]Vol_12_大雄的梦幻王国.zip - 17.6 MB</a>
+
+<a href="https://katfile.com/td1yf1mxl5ja/[哆啦A梦大长篇]Vol_13_迷宫之旅.zip.html" target=_blank>[哆啦A梦大长篇]Vol_13_迷宫之旅.zip - 16.2 MB</a>
+
+<a href="https://katfile.com/qtc600pni5lj/[哆啦A梦大长篇]Vol_14_梦幻三剑士.zip.html" target=_blank>[哆啦A梦大长篇]Vol_14_梦幻三剑士.zip - 23.3 MB</a>
+
+<a href="https://katfile.com/hj7romntfjjf/[哆啦A梦大长篇]Vol_15_创世日记.zip.html" target=_blank>[哆啦A梦大长篇]Vol_15_创世日记.zip - 14.8 MB</a>
+
+<a href="https://katfile.com/ojnhs1ra4atm/[哆啦A梦大长篇]Vol_16_银河高速列车.zip.html" target=_blank>[哆啦A梦大长篇]Vol_16_银河高速列车.zip - 23.4 MB</a>
+
+<a href="https://katfile.com/ll09gwscsnpd/[哆啦A梦大长篇]Vol_17_上链都市历险记.zip.html" target=_blank>[哆啦A梦大长篇]Vol_17_上链都市历险记.zip - 22.5 MB</a>
+
+<a href="https://katfile.com/ni9vhg2r6xi5/[哆啦A梦大长篇]Vol_18_南海大冒险.zip.html" target=_blank>[哆啦A梦大长篇]Vol_18_南海大冒险.zip - 20.6 MB</a>
+
+<a href="https://katfile.com/cj9e23wwv6ge/[哆啦A梦大长篇]Vol_19_大雄的宇宙漂流记.zip.html" target=_blank>[哆啦A梦大长篇]Vol_19_大雄的宇宙漂流记.zip - 16.7 MB</a>
+
+<a href="https://katfile.com/0o5dnzobc68d/[哆啦A梦大长篇]Vol_20_大雄的太阳王传说.zip.html" target=_blank>[哆啦A梦大长篇]Vol_20_大雄的太阳王传说.zip - 15.5 MB</a>
+
+<a href="https://katfile.com/x7i5eg7h4xah/[哆啦A梦大长篇]Vol_21_大雄与翼之勇者.zip.html" target=_blank>[哆啦A梦大长篇]Vol_21_大雄与翼之勇者.zip - 11.0 MB</a>
+
+<a href="https://katfile.com/frjclsw2tqmf/[哆啦A梦大长篇]Vol_22_大雄与机器人王国.zip.html" target=_blank>[哆啦A梦大长篇]Vol_22_大雄与机器人王国.zip - 29.9 MB</a>
+
+<a href="https://katfile.com/t7l57t7ksa3g/[哆啦A梦大长篇]Vol_23_大雄与神奇的风之使者.zip.html" target=_blank>[哆啦A梦大长篇]Vol_23_大雄与神奇的风之使者.zip - 23.4 MB</a>
+
+<a href="https://katfile.com/fepn130zs43t/[哆啦A梦大长篇]Vol_24_大雄的猫狗时空传.zip.html" target=_blank>[哆啦A梦大长篇]Vol_24_大雄的猫狗时空传.zip - 14.1 MB</a>
+
+<a href="https://katfile.com/9cby8dxxj05o/[哆啦A梦大长篇]Vol_25_大雄的绿之巨人传.zip.html" target=_blank>[哆啦A梦大长篇]Vol_25_大雄的绿之巨人传.zip - 37.3 MB</a>
+
+<a href="https://katfile.com/5rtbwck58lgb/[哆啦A梦大长篇]Vol_26_大雄的人鱼大海战.zip.html" target=_blank>[哆啦A梦大长篇]Vol_26_大雄的人鱼大海战.zip - 40.0 MB</a>
+
+<a href="https://katfile.com/0y4ymwzj4ccv/[哆啦A梦大长篇]Vol_27_大雄的恐龙2006DS.zip.html" target=_blank>[哆啦A梦大长篇]Vol_27_大雄的恐龙2006DS.zip - 26.8 MB</a>
+
+<a href="https://katfile.com/o9uwgky4fnag/[哆啦A梦大长篇]Vol_28_大雄的奇幻大冒险.zip.html" target=_blank>[哆啦A梦大长篇]Vol_28_大雄的奇幻大冒险.zip - 43.0 MB</a>
+
+<a href="https://katfile.com/ra48xzt3qbrg/[哆啦A梦大长篇]Vol_29_大雄与奇迹之岛.zip.html" target=_blank>[哆啦A梦大长篇]Vol_29_大雄与奇迹之岛.zip - 29.2 MB</a>
+
+<a href="https://katfile.com/6jw5mdbgzol1/[哆啦A梦大长篇]Vol_30_大雄的秘密道具博物馆.zip.html" target=_blank>[哆啦A梦大长篇]Vol_30_大雄的秘密道具博物馆.zip - 58.3 MB</a>
+
+<a href="https://katfile.com/g5jgj61hizxh/哆啦A夢彩色作品集_001集.zip.html" target=_blank>哆啦A夢彩色作品集 001集.zip - 25.5 MB</a>
+
+<a href="https://katfile.com/73mnspoou72b/哆啦A夢彩色作品集_002集.zip.html" target=_blank>哆啦A夢彩色作品集 002集.zip - 30.1 MB</a>
+
+<a href="https://katfile.com/ost6mymmveac/哆啦A夢彩色作品集_003卷.zip.html" target=_blank>哆啦A夢彩色作品集 003卷.zip - 31.0 MB</a>
+
+<a href="https://katfile.com/17wppghto2ua/哆啦A夢彩色作品集_004卷.zip.html" target=_blank>哆啦A夢彩色作品集 004卷.zip - 29.0 MB</a>
+
+<a href="https://katfile.com/rlwv2zq36jqb/哆啦A夢彩色作品集_005卷.zip.html" target=_blank>哆啦A夢彩色作品集 005卷.zip - 29.1 MB</a>
+
+<a href="https://katfile.com/jvycx69uoakj/哆啦A夢彩色作品集_006卷.zip.html" target=_blank>哆啦A夢彩色作品集 006卷.zip - 22.5 MB</a>
+
+<a href="https://katfile.com/l30z0ex7ra53/哆啦A梦深入导览.zip.html" target=_blank>哆啦A梦深入导览.zip - 32.8 MB</a>
+
+
 
